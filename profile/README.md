@@ -27,7 +27,7 @@ Unlim8ted Studio Productions also develops and shares various tools to aid in ga
 
 ## Community and Support
 
-Join our vibrant community on [Discord](https://discord.gg/whavW3b7Qc) and follow our updates on [Reddit](https://www.reddit.com/r/FlattenedTheVideoGame/). For more information, visit our [official website](https://unlim8ted.wixsite.com/unlim8) and [Unlim8ted Studio Productions homepage](https://unlim8ted.com).
+Join our vibrant community on [Discord](https://discord.gg/Unlim8ted) and follow our updates on [Reddit](https://www.reddit.com/r/Unlim8ted/). For more information, visit our [official website](https://unlim8ted.wixsite.com/unlim8) and [Unlim8ted Studio Productions homepage](https://unlim8ted.com).
 
 ## Contact Us
 
