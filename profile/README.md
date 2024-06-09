@@ -31,7 +31,7 @@ Join our vibrant community on [Discord](https://discord.gg/Unlim8ted) and follow
 
 ## Contact Us
 
-For support and inquiries, reach out to our support team at support-team@unlim8ted.com.
+For support and inquiries, reach out to our support team at support@unlim8ted.com.
 
 ---
 
