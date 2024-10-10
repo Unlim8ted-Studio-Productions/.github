@@ -1,6 +1,6 @@
 # About Unlim8ted Studio Productions
 
-**Unlim8ted Studio Productions** is a dynamic video game company based in the United States, founded in 2019 by an anonymous English programmer. Our mission is to create engaging and innovative gaming experiences for players around the world.
+**Unlim8ted Studio Productions** is a dynamic entertainment production company based in the United States, founded in 2019 by an anonymous English programmer. Our mission is to create engaging and innovative gaming experiences for players around the world.
 
 ## Our Games
 
